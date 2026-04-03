@@ -15,4 +15,4 @@ What I'm currently working on
 Reach me on:
 
 - 💼 [LinkedIn](https://linkedin.com/in/vishwaja-5b7052284)
-- 📧 [your@email.com](mailto:vishwajapilankar07@gmail.com)
+- 📧 [Gmail](mailto:vishwajapilankar07@gmail.com)
